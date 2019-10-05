@@ -1,2 +1,2 @@
 # Tugas-Pdf
-Tera;dy
+Teraldy
